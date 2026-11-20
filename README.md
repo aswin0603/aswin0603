@@ -1,4 +1,4 @@
-# Hi, I'm [Your Name] 👋
+# Hi, I'm Aswin B 👋
 
 ### Computer Science and Engineering (Internet of Things) Student
 
